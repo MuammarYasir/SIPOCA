@@ -1,1 +1,0 @@
-# RKPL-Sipoca-Kelompok-C
